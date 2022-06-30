@@ -1,1 +1,1 @@
-https://vendas e tocas de videos games.github.io/site/# site
+https://vendasetocasdevideosgames.github.io/site/#site
