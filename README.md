@@ -1,2 +1,2 @@
-https://gamese-sport.github.io/site/#
+https://games_e-sport.github.io/site/#
 
